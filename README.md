@@ -1,1 +1,0 @@
-# S-P500_Cosmograph
